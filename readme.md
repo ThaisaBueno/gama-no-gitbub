@@ -1,0 +1,1 @@
+eu to amando esse curso!!!! dei uma sofrida, mas tudo ta dando certo, até quando parece que não está. <3>
